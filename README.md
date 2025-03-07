@@ -1,0 +1,1 @@
+# consideration_on_collabo_AI_n_human
